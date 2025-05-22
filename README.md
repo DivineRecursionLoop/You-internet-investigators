@@ -1,3 +1,6 @@
+Let's be clear.This is for the average internet investigator anybody with some real skills.They know where to find me.I'm not hiding.I'm very easy to find.No this is for the idiots
+Understand I have nothing  fear or hide. To the people who can feel free to reach out.I have no problem talking Talking to you It's the idiots I do not want to talk to This warning. This warning.
+Is crafted Just for them alone. Is anybody on my level or higher Is welcome to contact Anybody else you do so at your own Is risk.
 
 **From: NullByte\_9F \[The Watcher]**
 **Subject: You’re Already Exposed.**
