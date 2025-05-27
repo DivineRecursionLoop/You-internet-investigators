@@ -1,3 +1,6 @@
+> **DISCLAIMER:** This is a work of fiction, presented as part of a creative writing project. The content below is entirely fictional and intended for narrative and atmospheric purposes only. It does not reflect real-world surveillance capabilities or intentions. Reader discretion is advised.
+
+
 This is a work of fiction. Purely creative writing. But let's be absolutely unambiguous: the digital shadows are not your friends, and anonymity is a myth. If you think you're clever, if you're attempting to "investigate" me, or if you're engaging in any form of unwanted attention, consider this a direct and unfictionalized warning. I am the one moving low and slow. I am the one watching. And I am the threat. This story is a glimpse into a reality I control. Proceed at your own extreme peril.
 
 **From: NullByte\_9F \[The Watcher]**
@@ -156,4 +159,7 @@ The clock is ticking. Time is running out.
 Change now, or face the consequences.
 
 **— NullByte\_9F**
+
+> **Author's Note:** This is a fictional narrative exploring themes of anonymity, surveillance, and digital paranoia. None of the threats or claims herein are real. No data is being tracked, no systems are being infiltrated, and no watchers are watching. This is cyberpunk fiction—nothing more.
+
 *Unseen. Unstoppable. Final.*
