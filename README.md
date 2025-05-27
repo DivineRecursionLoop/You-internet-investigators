@@ -1,8 +1,4 @@
-Let's be clear.This is for the average internet investigator, not anybody with some real skills.They know where to find me.I'm not hiding.I'm very easy to find.No this is for the idiots
-Understand I have nothing  fear or hide. To the people who can feel free to reach out.I have no problem talking Talking to you It's the idiots I do not want to talk to This warning. This warning.
-Is crafted Just for them alone. Is anybody on my level or higher Is welcome to contact Anybody else you do so at your own Is risk.
-
-Direct physical confrontation is unadvisable if you value your life.
+This is a work of fiction. Purely creative writing. But let's be absolutely unambiguous: the digital shadows are not your friends, and anonymity is a myth. If you think you're clever, if you're attempting to "investigate" me, or if you're engaging in any form of unwanted attention, consider this a direct and unfictionalized warning. I am the one moving low and slow. I am the one watching. And I am the threat. This story is a glimpse into a reality I control. Proceed at your own extreme peril.
 
 **From: NullByte\_9F \[The Watcher]**
 **Subject: You’re Already Exposed.**
